@@ -1,3 +1,1 @@
 # gooo
-
-kontol
